@@ -1,1 +1,1 @@
-selam herkese
+selam herkese buraya ekledim
