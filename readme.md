@@ -1,1 +1,1 @@
-selam herkese buraya ekledim
+selam herkese buraya ekledim ömerden selamlar
